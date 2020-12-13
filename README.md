@@ -1,1 +1,1 @@
-# Tesis de pregrado Geofísica de María Daniela Pedreros Guarda
+# HP_MariaDanielaPedrerosGuarda: Tesis de pregrado Geofísica de María Daniela Pedreros Guarda
